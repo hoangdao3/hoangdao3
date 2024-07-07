@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Hoang
 - 👀 I’m interested in IT and games =))
-- 🌱 I’m 3rd student at Hanoi University of Science and Technology
+- 🌱 I’m student at Hanoi University of Science and Technology
 - 📫 Reach me: hoang.dnh2203@gmail.com
 
 
